@@ -1,4 +1,4 @@
-## Hi there 👋
+## ぷよぐやむわかりゃん🥺
 
 <!--
 **KEIDI-k2/KEIDI-k2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
